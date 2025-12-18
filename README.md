@@ -2,5 +2,5 @@
 
 - 💬 微信：**Cohen0415**（全网同名）
 - 💬 QQ：**1033878279**
-- 📩 邮箱：**linzhengshuo28@qq.com**
+- 📩 邮箱：**cohen0415@163.com**
 - ⚡ CSDN：https://blog.csdn.net/CATTLE_L
